@@ -27,7 +27,7 @@ what you think about me is not in my mind
 why obscure the revenant truth
 no aim, no goals, no thought, just youth
 
-cycle of vengeance
+cycle of vengeance 
 
 
 
