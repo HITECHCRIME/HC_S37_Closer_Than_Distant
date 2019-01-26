@@ -28,6 +28,7 @@ why obscure the revenant truth
 no aim, no goals, no thought, just youth
 
 cycle of vengeance 
-
+getting replaced like a follower
+putting a lot in a i might just get there (?)
 
 
