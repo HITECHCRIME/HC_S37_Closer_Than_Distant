@@ -1,4 +1,4 @@
-# HC_S37_Closer_Than_Distant
+# MOTHNODE_ Closer Than Distant
 
 Maynooth - free beat from clover
 Slow, pleasant, dark.
@@ -31,4 +31,7 @@ cycle of vengeance
 getting replaced like a follower
 putting a lot in a i might just get there (?)
 
+## Music Video
+
+Forest, fog. Standing in a long coat with sunglasses and hat, camera closes in on the back of a person, we see in-ear headset. Reflections in the sunglasses of various electronics displaying patterns.
 
