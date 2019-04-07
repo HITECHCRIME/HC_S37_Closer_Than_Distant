@@ -6,7 +6,7 @@ Slow, pleasant, dark.
 ---
 
 ```
-why obscure the revenant truth
+(intro) why obscure the revenant truth
 no aim, no goals, no thought, just youth
 
 feeling allright now x2
